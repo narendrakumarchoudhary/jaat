@@ -1,5 +1,4 @@
+Muje kuch nahi pta
 
 
 
-
-jat shab going to delhi
